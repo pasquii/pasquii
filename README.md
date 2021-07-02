@@ -1,0 +1,4 @@
+- 👋 hey im pasquii
+- 👀 im interested in graphic design and general computer programming
+- 🌱 im currently learning the basics of game dev
+- 📫 my discord is 𝙥𝙖𝙨𝙦𝙪𝙞𝙞#0955
